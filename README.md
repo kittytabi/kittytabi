@@ -1,7 +1,7 @@
 <h1>hellooo</h1>
 <p>my name is kkat</p>
-<p style=“font-size:5px;”> other names i go by are nekomura iroha(or just iroha), siffrin(or just sif)(or just frin), mochi, boombox, phantasia, and tabi! (listed by preference)</p>
-<p>i am always ALWAYS in safe server i literally don't go anywhere else other than that</p>
+<p style=“font-size:5px;”>i also go by other names too!! kkat is just my main one, though</p>
+<p>i am always ALWAYS in safe server 1, i literally don't go anywhere else other than that</p>
 <p>i loove chatting to people on ponytown if u wanna interact just go for it !!!! i don’t mind at all c: ships are fine with me, as long as theyre legal! i’m not the best at roleplaying though</p>
 <p>i kinda suck at talking to people through whispers, im much more better at speaking in local chat…,,,.. sorry! usually if you’d want to interact you’d have to whisper tho, cus i probably won’t see the message otherwise</p>
 
@@ -11,3 +11,5 @@
 <p>^^^i use this unpleasant skin nearby the bakery sometimes! i also just like to wander around a lot when using this skin so i might be in a different place instead if i feel like it</p>
 
 <p>huge wip sorry idk how this website works bro</p>
+
+<p>if you want to know more stuff about me that aren't necessarily about pt, feel free to check out my strawpage! it has a list of all my boundaries, dni, fictionkins, f/os, names, and more!!</p>
