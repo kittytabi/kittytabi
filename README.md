@@ -18,6 +18,6 @@
 <img width="196" height="228" alt="pony-town-static miku w2i c+h-applause-blinking-padded-4x" src="https://github.com/user-attachments/assets/347a2bae-c1c6-49f9-87d9-cfaebb90c696" />
 <p>^^^ i used to use this static miku skin a lot but its a bit rare for me to do that now... i don't really have a specific place that i go to for this skin, but usually somewhere crowded i think</p>
 
-<p>there's definitely a lot more than just those 3 but i'm lowkey not doing allat</p>
+<p>there's definitely a lot more than just those 3 but i'm lowkey not adding allat</p>
 
 <p>that's it, i thimk... sorry this page mega sucks</p>
