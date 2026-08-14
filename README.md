@@ -5,6 +5,7 @@
 <p>i am always ALWAYS in safe server 1, i literally don't go anywhere else other than that</p>
 <p>i loove chatting to people on ponytown if u wanna interact just go for it !!!! i don’t mind at all c: ships are fine with me, as long as theyre legal! i’m not the best at roleplaying though</p>
 <p>i kinda suck at talking to people through whispers, im much more better at speaking in local chat…,,,.. sorry! usually if you’d want to interact you’d have to whisper tho, cus i probably won’t see the message otherwise</p>
+<p>i don't particularly enjoy being covered. i really don't mind if the place is like super crowded and there's no space at all or if you're just passing by and only covered me for a milisecond but if you cover me for like minutes it wiilll kinda piss me off... it doesn't make me uncomfortable or anything tho! it's not a big deal for me, i just dislike it</p>
 
 <h3>skins that i use the most</h3>
 
