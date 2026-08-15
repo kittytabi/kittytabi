@@ -8,10 +8,11 @@
 <p>i loove chatting to people on ponytown if u wanna interact just go for it !!!! i don’t mind at all c: ships are fine with me, as long as theyre legal! i’m not the best at roleplaying though</p>
 <p>i kinda suck at talking to people through whispers, im much more better at speaking in local chat…,,,.. sorry! usually if you’d want to interact you’d have to whisper tho, cus i probably won’t see the message otherwise</p>
 <p>i don't particularly enjoy being covered. i really don't mind if the place is like super crowded and there's no space at all or if you're just passing by and only covered me for a milisecond but if you cover me for like minutes it wiilll kinda piss me off... it doesn't make me uncomfortable or anything tho! it's not a big deal for me, i just dislike it</p>
+<p>i like being given boops, cuddles, kisses, nd anything else!!! i will appreciate them very much pls do those to me!!!</p>
 
-<h3>Random GIFs Of my Favorite Skins that I Have Made For No actual real Reason</h3>
+<h3>also here’s a bunch of my fave skins that i’ve made so far</h3>
 <img width="252" height="244" alt="pony-town-liz w2i c+h-dance-4-blinking-padded-4x" src="https://github.com/user-attachments/assets/01d31903-ccd8-4584-8e8d-611447206b0a" />
 <img width="196" height="232" alt="pony-town-unpleasant c+h w2i-dance-1-a-blinking-padded-4x" src="https://github.com/user-attachments/assets/4f8ba314-3298-42a2-b964-6cea212d232c" />
 
-<p>^^^will be updated later , i have a lot of other skins im proud of</p>
+<p>^^^will definitely be updated later , i have a lot of other skins im proud of</p>
 <p>that's it, i thimk... sorry this page mega sucks. might update sometimes still</p>
