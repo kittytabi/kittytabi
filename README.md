@@ -21,4 +21,4 @@
 
 
 <p>^^^ may be updated later... also sorry splits is facing the other side. she looks ugly as hell otherwise. static miku skin sucks i knoooww...sorray.. i still wanted to add her in cus i rly like static miku in general. i might actually recolor her someday</p>
-<p>that's it, i thimk... sorry this page mega sucks. might update sometimes still</p>
+<p>that's all!!! sorry this page mega sucks</p>
