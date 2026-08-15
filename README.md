@@ -18,7 +18,12 @@
 <img width="192" height="208" alt="pony-town-static miku w2i c+h-dance-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/63300645-d4bd-45fd-9a35-b5a39efafba2" />
 <img width="212" height="224" alt="pony-town-mayo-dance-2-blinking-padded-4x" src="https://github.com/user-attachments/assets/a29fdac9-29fc-4b4f-b5df-683f8575aba0" />
 <img width="196" height="236" alt="pony-town-king or queen-boop-blinking-padded-4x" src="https://github.com/user-attachments/assets/5e0ee8c9-c9ce-4970-a659-d4a72e8e9c7a" />
+<img width="212" height="244" alt="pony-town-aquaaaa-dance-1-b-blinking-padded-4x" src="https://github.com/user-attachments/assets/bd37369a-1eba-443f-8595-3399790261b1" />
+<img width="204" height="240" alt="pony-town-dazzle !!-dance-3-blinking-padded-4x" src="https://github.com/user-attachments/assets/1996b374-27c5-4eb2-9d67-e62b41d357e3" />
+<img width="232" height="264" alt="pony-town-broccoli !! c+h-dance-5-blinking-padded-4x" src="https://github.com/user-attachments/assets/479bac97-ba45-45d0-9c36-ae621e8aea1c" />
 
 
-<p>^^^ may be updated later... also sorry splits is facing the other side. she looks ugly as hell otherwise. static miku skin sucks i knoooww...sorray.. i still wanted to add her in cus i rly like static miku in general. i might actually recolor her someday</p>
+
+<p>^^^ may be updated later... all of these are cosplays except the last two</p>
+<p>also sorry splits is facing the other side. she looks ugly as hell otherwise. static miku skin sucks i knoooww...sorray.. i still wanted to include her here cus i rly like static miku in general. i might actually recolor her someday</p>
 <p>that's all!!! sorry this page mega sucks</p>
