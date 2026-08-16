@@ -3,7 +3,7 @@
 <h1>I DON'T SUPPORT QWEL OR ROX DNI IF YOU DO!!!!</h1>
 <p>^^^ JUS SAYING CUS I SOMETIMES USE DANDYS WORLD/ FLAVOR FRENZY SKINS AND I'M HORRIFIED SOMEONE WILL ASSUME THAT I SUPPORT QWEL/ROX....</p>
 <p>if you came here and want to know stuff about me that aren't necessarily about pt, i recommend checking out my strawpage! it has a list that has the rest of my boundaries, dni, fictionkins, f/os, names, and more!</p>
-<p>i am always ALWAYS in safe server 1, i literally don't go anywhere else other than that</p>
+<p>i am always ALWAYS in safe server 1, i literally don't go anywhere else other than that. i MIGHT be in safe server 2 but thats like once in a blue moon</p>
 <p>i loove chatting to people on ponytown if u wanna interact just go for it !!!! i don’t mind at all c: ships are fine with me, as long as theyre legal! i’m not the best at roleplaying though</p>
 <p>i love being given boops, cuddles, kisses, nd anything else!!! i will appreciate them very much pls do those to me!!!</p>
 <p>i kinda suck at talking to people through whispers, im much more better at speaking in local chat…,,,.. sorry! usually if you’d want to interact you’d have to whisper tho, cus i probably won’t see the message otherwise</p>
